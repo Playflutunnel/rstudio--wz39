@@ -1,4 +1,4 @@
-# 
+# premium MathType for PC | MathType for Windows Helper | 3D-plotting + equation-editing offers the most advanced MathType for PC | MathType for Windows helper, with 3D-plotting and
 
 
 
